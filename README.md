@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ivanmcf
 - 👀 I’m interested in AI and Airplanes
-- 🌱 I’m currently learning How to muse AI
+- 🌱 I’m currently learning How to use AI
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me imcfa10@gmail.com
 - 😄 Pronouns: He/Him
